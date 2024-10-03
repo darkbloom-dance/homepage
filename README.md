@@ -14,7 +14,7 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Classes
 
-Sundays at 5pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351).
+Sundays at 4pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351).
 
 We're working on original choreography for Defying Gravity (from Wicked) for our [November 16th showcase](https://www.eyecandybangor.com/product/nov-16-spanksgiving/507)
 
