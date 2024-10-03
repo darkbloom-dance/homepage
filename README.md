@@ -1,6 +1,6 @@
 # About
 
-Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer, teacher, and kitten. I started performing in 2023, and I'm based out of Maine.
+Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer, teacher, and [kitten](https://kittening.darkbloom.dance). I started performing in 2023, and I'm based out of Maine.
 
 I believe that we can _all_ win, and get super excited about collaboration.
 
