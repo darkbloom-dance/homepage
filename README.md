@@ -24,4 +24,6 @@ Sundays at 5pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandy
 
 We're working on original choreography for Defying Gravity (from Wicked) for our [November 16th showcase](https://www.eyecandybangor.com/product/nov-16-spanksgiving/507)
 
+⚠️  We will not have class on November 3rd ⚠️ 
+
 Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrated"!
