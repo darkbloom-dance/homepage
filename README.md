@@ -14,11 +14,13 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Classes
 
+![Light blue comic book bubbles on a red background with yellow sparkles. The comic book bubbles say, “Nerdlesque: a mashup of pop culture and burlesque”, “Sundays at 4pm, 9 Central St. Ste 401, Bangor Maine”, and “Eye Candy Dance and Fitness”](classes/NERDLESQUE.png)
+
 Sundays at 4pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351).
 
 We're working on original choreography for Defying Gravity (from Wicked) for our [November 16th showcase](https://www.eyecandybangor.com/product/nov-16-spanksgiving/507)
 
-⚠️  We will not have class on November 3rd ⚠️ 
+⚠️  *We will not have class on November 3rd* ⚠️ 
 
 Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrated"!
 
