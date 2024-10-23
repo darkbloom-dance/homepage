@@ -52,7 +52,7 @@ October 26th - [Halloween Burlesque](https://www.eyecandybangor.com/product/oct-
 - June 8th - [Brunswick Pride](https://brunswickpride.org/), Maine
 - June 1st - The Messy Show [Hot Hill Tavern](http://hothilltavernme.com) in Thomaston, Maine
 - May 4th - Girls Just Want To Have Fun at The Franklin Vets Club in Franklin, Maine
-- Apil 20th - Boobies and Doobies at [Hot Hill Tavern](http://hothilltavernme.com) in Thomaston, Maine
+- April 20th - Boobies and Doobies at [Hot Hill Tavern](http://hothilltavernme.com) in Thomaston, Maine
 - April 13th - What's Your Fantasy at [The Blue Sky Lounge](https://www.facebook.com/blueskyloungebangor/) in Bangor, Maine
 - March 29th - Bringing Sexy Back at [The Morgan Hill Event Center](https://www.morganhilleventcenter.com) in Hermon, Maine
 - March 26th - World of Burlesque at [The Colonial Theatre](https://colonialtheatre.com) in Belfast, Maine
