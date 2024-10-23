@@ -31,6 +31,10 @@ Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrate
 
 October 26th - [Halloween Burlesque](https://www.eyecandybangor.com/product/oct-26-halloween-burlesque/506) at [Hot Hill Tavern](https://hothilltavernme.com) in Thomaston, Maine with [Eye Candy Dance and Fitness](https://www.instagram.com/eye_candy_dance_bangor/)
 
+<br />
+<br />
+<br />
+<br />
 # Past Shows
 
 ## 2024
@@ -40,6 +44,7 @@ October 26th - [Halloween Burlesque](https://www.eyecandybangor.com/product/oct-
 - August 23rd - Welcome To The Dungeon at [Hot Hill Tavern](http://hothilltavernme.com) in Thomaston, Maine
 - August 10th - Giggles and Wiggles at [Basil Burwell Community Theater](https://belfastmaskers.com) in Belfast, Maine with The Eye Candy Bombshells and [Maine House of Comedy](https://www.mainehouseofcomedy.com)
 - July 26th - 80s Night at [Hot Hill Tavern](http://hothilltavernme.com) in Thomaston, Maine
+- July 6th - [Summer Sidewalk Art Festival](https://downtownbangor.com/events/summer-sidewalk-art-festival-in-downtown-bangor/) in Bangor, Maine
 - June 28th - Back to the 80s at Benjamin's Pub in Bangor, Maine
 - June 22nd - [Bangor Pride](https://www.bangorpride.com/), Maine
 - June 15th - [Pride Aroostook](https://www.pridearoostook.com/) at [The Northeastland Hotel](https://thenortheastlandhotel.com) in Presque Isle, Maine
