@@ -35,6 +35,7 @@ October 26th - [Halloween Burlesque](https://www.eyecandybangor.com/product/oct-
 <br />
 <br />
 <br />
+
 # Past Shows
 
 ## 2024
