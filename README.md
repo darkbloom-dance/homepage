@@ -64,6 +64,7 @@ November calendar to come soon!
 - March 16th - St. Patty's Day at Kanù in Old Town, Maine
 - February 17th - Lonely Hearts Club at [Jeff's Catering](https://jeffscatering.com) in Brewer, Maine with The Delicious Drag Divas and The Eye Candy Bombshells
 - February 10th - Cupid's Delight at [Hot Hill Tavern](http://hothilltavernme.com) in Thomaston, Maine
+- February 3rd - Burlesque at Benjamin's Pub in Bangor, Maine
 
 # Solo Acts
 
