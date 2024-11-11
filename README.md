@@ -20,16 +20,13 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 Sundays at 4pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351).
 
-We're working on original choreography for Defying Gravity (from Wicked) for our [November 16th showcase](https://www.eyecandybangor.com/product/nov-16-spanksgiving/507)
-
-⚠️  *We will not have class on November 3rd* ⚠️ 
+We are performing original choreography for Defying Gravity (from Wicked) (but Punk Rock Factory's version of it) for our [November 16th showcase](https://www.eyecandybangor.com/product/nov-16-spanksgiving/507). I'm incredibly proud of the class!
 
 Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrated"!
 
 # Upcoming Shows
 
-November calendar to come soon!
-
+![Jenni's November Calendar. She's laying down in a flower field in Vermont on a Spring day wearing a light green tulle dress with a purple harness.](calendar/november-2024.jpg)
 - November 16th - Spanksgiving Showcase at The Ten Buck Theater in Bangor, ME
 - November 30th - Thanksgiving Spread at Hot Hill Tavern in Thomaston, ME
 
