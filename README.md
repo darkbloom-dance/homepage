@@ -6,11 +6,11 @@ We can _all_ win, and I get super excited about collaboration.
 
 I've had the pleasure of working with lovely and talented people, including:
 - [Eye Candy Dance and Fitness](https://www.facebook.com/profile.php?id=100078283869662)
+- [A La Tarte Burlesque](https://www.instagram.com/a_la_tarte_burlesque)
 - [Mak the Knife](https://www.youtube.com/@mak_the_knife/featured)
 - [King Lyreck](https://www.facebook.com/connora.caron)
 - [Lady D's Delicious Drag Divas](https://www.facebook.com/DeliciousDragDivas/)
 - [Maine House of Comedy](https://www.mainehouseofcomedy.com)
-- [A La Tarte Burlesque](https://www.instagram.com/a_la_tarte_burlesque)
 
 If you'd like to create something, let's chat! [Instagram](https://www.instagram.com/jennidarkbloom/) or [E-Mail](mailto:jennidarkbloom@gmail.com) are the best ways to get in touch.
 
@@ -18,19 +18,15 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 ![Cartoon flannel jacket surrounded by axes, stuck in tree stumps. Text top-center aligned: Nerdlesque. We're yellin' Timber! Sundays @ 4pm, Eye Candy Dance And Fitness. Nine Central Street, Bangor, Maine](classes/NERDLESQUE.png)
 
-Sundays at 4pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351).
-
-For our next showcase (Feburary 2025) we're dancing to Pitbull and Kesha's tune Timber.
-
-Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrated"!
+I am taking a break from teaching [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351), but Meg G. has taken over and does a killer job, you should check it out! Class is Sunday at 4pm in Room 401, 9 Central Street.
 
 # Upcoming Shows
 
-![Sparkles Moonbeam, the 8 foot tall inflatible unicorn with a rainbow mane, leaning back on a folding chair with her arms and legs out, on stage with LED strips and a Christmas tree](calendar/december-2024.jpg)
+![Sparkles Moonbeam, the 8 foot tall inflatible unicorn with a rainbow mane, leaning forward on a folding chair with her arms reaching the base, brick wall.](calendar/january-2025.jpg)
 
-## December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
+- January 18th - Wild Winter Creatures Burlesque
 
-Show starts at 8, then we'll be having a dance party to ring in the new year. Tickets are on the [Eye Candy Site](https://www.eyecandybangor.com/product/dec-31-welcome-to-the-black-light-district/509)
+This is Sparkles' last show until March. She's traveling to Glitterville, where she can study the ancient tomes filled with forbidden knowledge of burlesque history, mysticism, and the arcane arts. Her plan is to refine the power of her horn, and unveil the secrets that lay hidden within its glittering core.
 
 <br />
 <br />
@@ -42,6 +38,8 @@ Show starts at 8, then we'll be having a dance party to ring in the new year. Ti
 ## 2024
 ✨ = Solo act debut
 
+- December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
+    - Everyone was so neon sparkles, it was so awesome!
 - ✨December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
     - Solid show, Hot Hill is lovely.
 - November 30th - Thanksgiving Spread at Hot Hill Tavern in Thomaston, ME
