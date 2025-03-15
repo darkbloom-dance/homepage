@@ -74,10 +74,22 @@ Show starts at 8, then we'll be having a dance party to ring in the new year. Ti
 # Solo Acts
 
 ## Amelia Arsenic - Choke
+
+This was my first ever solo, and easily my most refined. Jenni the Vampiress is looking for a victim, and hoo boy does she find one.
+
 ## Frankie Yankovic - Who Stole The Keeshka
+
+I got a butcher shop to open where on Earth did my huge sausage go? Oh f--k oh s--t oh no no no where is it!?! Oh there it is. Nice.
+
 ## Tweaker - Worse Than Yesterday
+
+A 2005 vintage mall-goth doing slow seductive propwork to a slow seductive tune.
+
 ## Blue Brew Music - Mii Channel
+
+Jenni is running late (or had to leave early), but got her bestie, Sparkles Moonbeam (an 8 foot tall unicorn) to fill in for her. Chair acro!
+
 ## Mellowdrone - Orange Marmalade
 
-Jenni is running late (or had to leave early), but got her bestie, Sparkles Moonbeam (an 8 foot tall unicorn) to fill in for her.
+KRAMPUS ACT! KRAMPUS ACT!
 
