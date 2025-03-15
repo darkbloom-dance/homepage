@@ -6,22 +6,21 @@ We can _all_ win, and I get super excited about collaboration.
 
 I've had the pleasure of working with lovely and talented people, including:
 - [Black Garter Revue](https://www.blackgarterrevue.com/)
-- [Eye Candy Dance and Fitness](https://www.facebook.com/profile.php?id=100078283869662)
 - [A La Tarte Burlesque](https://www.instagram.com/a_la_tarte_burlesque)
 - [Mak the Knife](https://www.youtube.com/@mak_the_knife/featured)
+- [Maine House of Comedy](https://www.mainehouseofcomedy.com)
 - [King Lyreck](https://www.facebook.com/connora.caron)
 - [Lady D's Delicious Drag Divas](https://www.facebook.com/DeliciousDragDivas/)
-- [Maine House of Comedy](https://www.mainehouseofcomedy.com)
+- [Eye Candy Dance and Fitness](https://www.facebook.com/profile.php?id=100078283869662)
 
 If you'd like to create something, let's chat! [Instagram](https://www.instagram.com/jennidarkbloom/) or [E-Mail](mailto:jennidarkbloom@gmail.com) are the best ways to get in touch.
 
 # Upcoming Shows
 
-![Jenni laying down on a luxurious red sheet. She has spiderweb eyeliner makeup, sheer mesh gloves, and a wrap around dress. All black everything, even her lip color.](bio/jenni-red-background.jpeg)
+![Nerds Unzipped, a pop culture burlesque show. Saturday, March 22nd, Hot Hill Tavern, Thomaston, Maine](calendar/nerds-unzipped.jpg)
 
-- Jenni is taking a dance break to practice the arcane artforms of Ruby and Excel.
-- Sparkles has traveled back to Glitterville, where she's studying forbidden knowledge of burlesque history.
-- We'll be back soon!
+- Sparkles has returned from Glitterville! On 2025-03-22 she is performing as a guest with [A La Tarte](https://www.eventbrite.com/e/nerds-unzipped-a-pop-culture-burlesque-tickets-1261223426219) at Hot Hill Tavern.
+- Jenni is getting ready for the smokey April holiday 👀
 
 <br />
 <br />
