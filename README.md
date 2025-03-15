@@ -20,15 +20,23 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 Sundays at 4pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351).
 
-We are performing original choreography for Defying Gravity (from Wicked) (but Punk Rock Factory's version of it) for our [November 16th showcase](https://www.eyecandybangor.com/product/nov-16-spanksgiving/507). I'm incredibly proud of the class!
+For our next showcase (Feburary 2025) we're dancing to Pitbull and Kesha's tune Timber.
+
+⚠️ We will not be having class on December 15th,2024⚠️
 
 Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrated"!
 
 # Upcoming Shows
 
-![Jenni's November Calendar. She's laying down in a flower field in Vermont on a Spring day wearing a light green tulle dress with a purple harness.](calendar/november-2024.jpg)
-- November 16th - Spanksgiving Showcase at The Ten Buck Theater in Bangor, ME
-- November 30th - Thanksgiving Spread at Hot Hill Tavern in Thomaston, ME
+![Sparkles Moonbeam, the 8 foot tall inflatible unicorn with a rainbow mane, leaning back on a folding chair with her arms and legs out, on stage with LED strips and a Christmas tree](calendar/december-2024.jpg)
+
+## December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
+
+I hear Krampus is making an appearance! Tickets are available on the [Eye Candy Site](https://www.eyecandybangor.com/product/dec-21-how-to-get-on-the-naughty-list/508)
+
+## December 31st - Welcome To The Black Light District at Hot Hill Tagern in Thoamston, ME
+
+Show starts at 8, then we'll be having a dance party to ring in the new year. Tickets are on the [Eye Candy Site](https://www.eyecandybangor.com/product/dec-31-welcome-to-the-black-light-district/509)
 
 <br />
 <br />
@@ -40,6 +48,10 @@ Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrate
 ## 2024
 ✨ = Solo act debut
 
+- November 30th - Thanksgiving Spread at Hot Hill Tavern in Thomaston, ME
+    - Sold out and we had a guest performer 🥰
+- November 16th - Spanksgiving Showcase at The Ten Buck Theater in Bangor, ME
+    - This show was incredible. Sold out, a bunch of students had their first time on stage, and we had 6 new additions to the Candy Bombshells.
 - ✨October 26th - Halloween Burlesque at [Hot Hill Tavern](https://hothilltavernme.com) in Thomaston, Maine with [Eye Candy Dance and Fitness](https://www.instagram.com/eye_candy_dance_bangor/)
 - October 18th - [Vamps and Tramps](https://www.eventbrite.com/e/vamps-and-tramps-burlesque-show-tickets-1008590008867) at [Craft Brew Underground](http://craftbrewunderground.net) in Auburn, Maine with [Ala Tarte Burlesque](https://www.instagram.com/a_la_tarte_burlesque/)
 - September 21st - World of Burlesque at [Ten Bucks Theater](http://www.tenbuckstheatre.org) in Bangor, Maine
@@ -66,18 +78,9 @@ Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrate
 # Solo Acts
 
 ## Amelia Arsenic - Choke
-
-A vampiress that's clearly a member of the Big Sparkles Crew scans through the crowd looking for a victim while electro industrial rumbles the venue. Grindy tease-y goodness. My first ever solo.
-
 ## Frankie Yankovic - Who Stole The Keeshka
-
-A meatcutter loses their mind trying to find a sausage thief, but it all works out in the end! Comedy stripping with hand-crocheted pierogi and kielbasa.
-
 ## Tweaker - Worse Than Yesterday
-
-A university admin realizes things aren't fair. It doesn't work out in the end. Propwork to a slow spacious piano + drum tune.
-
 ## Blue Brew Music - Mii Channel
 
-Sparkles the Unicorn covers an act for Jenni, who had to leave the venue to go do vampiress stuff. It all works out in the end! Comedy chairwork and stocking peels.
+Jenni is running late (or had to leave early), but got her bestie, Sparkles Moonbeam (an 8 foot tall unicorn) to fill in for her.
 
