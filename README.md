@@ -16,9 +16,11 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Upcoming Shows
 
-![Jenni laying down on a luxurious red sheet. She has spiderweb eyeliner makeup, sheer mesh gloves, and a wrap around dress. All black everything.](bio/jenni-red-background.jpeg)
+![Jenni laying down on a luxurious red sheet. She has spiderweb eyeliner makeup, sheer mesh gloves, and a wrap around dress. All black everything, even her lip color.](bio/jenni-red-background.jpeg)
 
-Jenni is taking a dance break to practice the arcane artforms of Ruby and Excel. Sparkles has traveled back in Glitterville, where she's studying the ancient tomes filled with forbidden knowledge of burlesque history. We'll be back soon!
+- Jenni is taking a dance break to practice the arcane artforms of Ruby and Excel.
+- Sparkles has traveled back to Glitterville, where she's studying forbidden knowledge of burlesque history.
+- We'll be back soon!
 
 <br />
 <br />
@@ -27,11 +29,13 @@ Jenni is taking a dance break to practice the arcane artforms of Ruby and Excel.
 
 # Past Shows
 
+## 2025
+- January 18th - Wild Winter Creatures Burlesque
+	- Had fun! It was Seraphina Syren's birthday!
+
 ## 2024
 ✨ = Solo act debut
 
-- January 18th - Wild Winter Creatures Burlesque
-	- Had fun! It was Seraphina Syren's birthday!
 - December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
     - Everyone was so neon sparkles, it was so awesome!
 - ✨December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
