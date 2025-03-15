@@ -42,7 +42,7 @@ Show starts at 8, then we'll be having a dance party to ring in the new year. Ti
 ## 2024
 ✨ = Solo act debut
 
-- December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
+- ✨December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
     - Solid show, Hot Hill is lovely.
 - November 30th - Thanksgiving Spread at Hot Hill Tavern in Thomaston, ME
     - Sold out, and we had a guest performer 🥰
@@ -77,6 +77,7 @@ Show starts at 8, then we'll be having a dance party to ring in the new year. Ti
 ## Frankie Yankovic - Who Stole The Keeshka
 ## Tweaker - Worse Than Yesterday
 ## Blue Brew Music - Mii Channel
+## Mellowdrone - Orange Marmalade
 
 Jenni is running late (or had to leave early), but got her bestie, Sparkles Moonbeam (an 8 foot tall unicorn) to fill in for her.
 
