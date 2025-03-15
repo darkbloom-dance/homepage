@@ -5,6 +5,7 @@ Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer and [kitt
 We can _all_ win, and I get super excited about collaboration.
 
 I've had the pleasure of working with lovely and talented people, including:
+- [Black Garter Revue](https://www.blackgarterrevue.com/)
 - [Eye Candy Dance and Fitness](https://www.facebook.com/profile.php?id=100078283869662)
 - [A La Tarte Burlesque](https://www.instagram.com/a_la_tarte_burlesque)
 - [Mak the Knife](https://www.youtube.com/@mak_the_knife/featured)
