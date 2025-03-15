@@ -1,6 +1,6 @@
 # About
 
-Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer and [kitten](https://kittening.darkbloom.dance). I started performing in 2023, based out of Maine, and often perform with The Eye Candy Bombshells.
+Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer and [kitten](https://kittening.darkbloom.dance). I started performing in 2023, and I'm based out of Maine.
 
 We can _all_ win, and I get super excited about collaboration.
 
@@ -16,11 +16,9 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Upcoming Shows
 
-![Sparkles Moonbeam, the 8 foot tall inflatible unicorn with a rainbow mane, leaning forward on a folding chair with her arms reaching the base, brick wall.](calendar/january-2025.jpg)
+![Jenni laying down on a luxurious red sheet. She has spiderweb eyeliner makeup, sheer mesh gloves, and a wrap around dress. All black everything.](bio/jenni-red-background.jpeg)
 
-- January 18th - Wild Winter Creatures Burlesque
-
-This is Sparkles' last show until March. She's traveling to Glitterville, where she can study the ancient tomes filled with forbidden knowledge of burlesque history, mysticism, and the arcane arts. Her plan is to refine the power of her horn, and unveil the secrets that lay hidden within its glittering core.
+Jenni is taking a dance break to practice the arcane artforms of Ruby and Excel. Sparkles has traveled back in Glitterville, where she's studying the ancient tomes filled with forbidden knowledge of burlesque history. We'll be back soon!
 
 <br />
 <br />
@@ -32,6 +30,8 @@ This is Sparkles' last show until March. She's traveling to Glitterville, where 
 ## 2024
 ✨ = Solo act debut
 
+- January 18th - Wild Winter Creatures Burlesque
+	- Had fun! It was Seraphina Syren's birthday!
 - December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
     - Everyone was so neon sparkles, it was so awesome!
 - ✨December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
