@@ -34,7 +34,7 @@ Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrate
 
 I hear Krampus is making an appearance! Tickets are available on the [Eye Candy Site](https://www.eyecandybangor.com/product/dec-21-how-to-get-on-the-naughty-list/508)
 
-## December 31st - Welcome To The Black Light District at Hot Hill Tagern in Thoamston, ME
+## December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
 
 Show starts at 8, then we'll be having a dance party to ring in the new year. Tickets are on the [Eye Candy Site](https://www.eyecandybangor.com/product/dec-31-welcome-to-the-black-light-district/509)
 
