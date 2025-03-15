@@ -16,23 +16,17 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Classes
 
-![Light blue comic book bubbles on a red background with yellow sparkles. The comic book bubbles say, “Nerdlesque: a mashup of pop culture and burlesque”, “Sundays at 4pm, 9 Central St. Ste 401, Bangor Maine”, and “Eye Candy Dance and Fitness”](classes/NERDLESQUE.png)
+![Cartoon flannel jacket surrounded by axes, stuck in tree stumps. Text top-center aligned: Nerdlesque. We're yellin' Timber! Sundays @ 4pm, Eye Candy Dance And Fitness. Nine Central Street, Bangor, Maine](classes/NERDLESQUE.png)
 
 Sundays at 4pm, I teach [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351).
 
 For our next showcase (Feburary 2025) we're dancing to Pitbull and Kesha's tune Timber.
-
-⚠️ We will not be having class on December 15th,2024⚠️
 
 Wear something comfy to class. Don't forget that Galaxy Frog says, "Stay hydrated"!
 
 # Upcoming Shows
 
 ![Sparkles Moonbeam, the 8 foot tall inflatible unicorn with a rainbow mane, leaning back on a folding chair with her arms and legs out, on stage with LED strips and a Christmas tree](calendar/december-2024.jpg)
-
-## December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
-
-I hear Krampus is making an appearance! Tickets are available on the [Eye Candy Site](https://www.eyecandybangor.com/product/dec-21-how-to-get-on-the-naughty-list/508)
 
 ## December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
 
@@ -48,8 +42,10 @@ Show starts at 8, then we'll be having a dance party to ring in the new year. Ti
 ## 2024
 ✨ = Solo act debut
 
+- December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
+    - Solid show, Hot Hill is lovely.
 - November 30th - Thanksgiving Spread at Hot Hill Tavern in Thomaston, ME
-    - Sold out and we had a guest performer 🥰
+    - Sold out, and we had a guest performer 🥰
 - November 16th - Spanksgiving Showcase at The Ten Buck Theater in Bangor, ME
     - This show was incredible. Sold out, a bunch of students had their first time on stage, and we had 6 new additions to the Candy Bombshells.
 - ✨October 26th - Halloween Burlesque at [Hot Hill Tavern](https://hothilltavernme.com) in Thomaston, Maine with [Eye Candy Dance and Fitness](https://www.instagram.com/eye_candy_dance_bangor/)
