@@ -1,6 +1,6 @@
 # About
 
-Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer, teacher, and [kitten](https://kittening.darkbloom.dance). I started performing in 2023, based out of Maine, and often perform with The Eye Candy Bombshells.
+Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer and [kitten](https://kittening.darkbloom.dance). I started performing in 2023, based out of Maine, and often perform with The Eye Candy Bombshells.
 
 We can _all_ win, and I get super excited about collaboration.
 
@@ -13,12 +13,6 @@ I've had the pleasure of working with lovely and talented people, including:
 - [Maine House of Comedy](https://www.mainehouseofcomedy.com)
 
 If you'd like to create something, let's chat! [Instagram](https://www.instagram.com/jennidarkbloom/) or [E-Mail](mailto:jennidarkbloom@gmail.com) are the best ways to get in touch.
-
-# Classes
-
-![Cartoon flannel jacket surrounded by axes, stuck in tree stumps. Text top-center aligned: Nerdlesque. We're yellin' Timber! Sundays @ 4pm, Eye Candy Dance And Fitness. Nine Central Street, Bangor, Maine](classes/NERDLESQUE.png)
-
-I am taking a break from teaching [Nerdlesque at Eye Candy in Bangor](https://www.eyecandybangor.com/product/sunday-4pm-nerdlesque/351), but Meg G. has taken over and does a killer job, you should check it out! Class is Sunday at 4pm in Room 401, 9 Central Street.
 
 # Upcoming Shows
 
