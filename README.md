@@ -1,6 +1,6 @@
 # About
 
-Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a burlesque dancer and [kitten](https://kittening.darkbloom.dance). I started performing in 2023, and I'm based out of Maine.
+Howdy! Thanks for stopping by! I'm Jenni Darkbloom, a someone that fell into burlesque and became a performer, [kitten](https://kittening.darkbloom.dance), and [technologist](https://github.com/darkbloom-dance/GarterLoop). I started performing in 2023, and I'm based out of Maine.
 
 We can _all_ win, and I get super excited about collaboration.
 
@@ -17,10 +17,11 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Upcoming Shows
 
-![Nerds Unzipped, a pop culture burlesque show. Saturday, March 22nd, Hot Hill Tavern, Thomaston, Maine](calendar/nerds-unzipped.jpg)
+## Giggles and Wiggles
 
-- Sparkles has returned from Glitterville! On 2025-03-22 she is performing as a guest with [A La Tarte](https://www.eventbrite.com/e/nerds-unzipped-a-pop-culture-burlesque-tickets-1261223426219) at Hot Hill Tavern.
-- Jenni is getting ready for the smokey April holiday 👀
+![Stage with a red velvet curtian, microphone on a stand, purple bra hanging off of the microphone. Seraphina Syren and Danny Jordan overlaid on the stage. Saturday, May 31st, at Hot Hill Tavern in Thomaston Maine. Doors open 7:30, show starts 8:00. Advanced tickets $20 GA, $30 VIP. Door tickets $25 GA, $35 VIP.](calendar/giggles-and-wiggles.jpg)
+
+Black Garter Revue is putting on a show with Danny Jordan and Friends! We are tag teaming the stage with standup comedy and burlesque. I am quite looking forward to this one, so is Sparkles.
 
 <br />
 <br />
@@ -29,12 +30,18 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Past Shows
 
-## 2025
-- January 18th - Wild Winter Creatures Burlesque
-	- Had fun! It was Seraphina Syren's birthday!
-
-## 2024
 ✨ = Solo act debut
+## 2025
+
+- ✨ April 19th - Burn Baby Burn with Black Garter Reveue at Hot Hill
+    - New act new act! I ended up tripping but managed to invoke my inner Street Fighter 3rd Strike character and sweep out of it. Looked cool 😎.
+- May 3rd - Mas Tease-ly Cantina Cabaret with A La Tarte at Hot Hill.
+    - Helping with sound is fun! Once again A La Tarte is great.
+- March 22nd - [Nerds Unzipped with A La Tarte](https://www.eventbrite.com/e/nerds-unzipped-a-pop-culture-burlesque-tickets-1261223426219) at Hot Hill Tavern.
+    - I love working with A La Tarte. They're creative, kind, and put on a super fun show.
+- January 18th - Wild Winter Creatures Burlesque
+    - Had fun! It was Seraphina Syren's birthday!
+## 2024
 
 - December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
     - Everyone was so neon sparkles, it was so awesome!
@@ -71,11 +78,11 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 ## Amelia Arsenic - Choke
 
-This was my first ever solo, and easily my most refined. Jenni the Vampiress is looking for a victim, and hoo boy does she find one.
+This was my first ever solo, and my most refined. Jenni the Vampiress is looking for a victim, and hoo boy does she find one.
 
 ## Frankie Yankovic - Who Stole The Keeshka
 
-I got a butcher shop to open where on Earth did my huge sausage go? Oh f--k oh s--t oh no no no where is it!?! Oh there it is. Nice.
+I got a butcher shop to open where on Earth did my huge sausage go? Oh f--k oh s--t oh no no no where is it!?! Oh, someone found it! Nice!
 
 ## Tweaker - Worse Than Yesterday
 
@@ -89,3 +96,6 @@ Jenni is running late (or had to leave early), but got her bestie, Sparkles Moon
 
 KRAMPUS ACT! KRAMPUS ACT!
 
+## Kidneytheives - Kushcloud
+
+An excuse to play with a green tulle scarf.
