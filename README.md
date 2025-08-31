@@ -17,11 +17,11 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Upcoming Shows
 
-## Giggles and Wiggles
+## Nightmare on Starr St II : The Haunting Of Hot Hill
 
-![Stage with a red velvet curtian, microphone on a stand, purple bra hanging off of the microphone. Seraphina Syren and Danny Jordan overlaid on the stage. Saturday, May 31st, at Hot Hill Tavern in Thomaston Maine. Doors open 7:30, show starts 8:00. Advanced tickets $20 GA, $30 VIP. Door tickets $25 GA, $35 VIP.](calendar/giggles-and-wiggles.jpg)
+![A spooky version of Hot Hill Tavern, complete with fishnet-wearing ghosts, cool jack o lanterns, a witch taking fligh, and a big spider](calendar/haunting-of-hot-hill.jpeg)
+We getting spooky with it. Super hyped for this one; it's a bit later than usual because there's Halloween candy to hand out!
 
-Black Garter Revue is putting on a show with Danny Jordan and Friends! We are tag teaming the stage with standup comedy and burlesque. I am quite looking forward to this one, so is Sparkles.
 
 <br />
 <br />
@@ -33,14 +33,21 @@ Black Garter Revue is putting on a show with Danny Jordan and Friends! We are ta
 ✨ = Solo act debut
 ## 2025
 
-- ✨ April 19th - Burn Baby Burn with Black Garter Reveue at Hot Hill
-    - New act new act! I ended up tripping but managed to invoke my inner Street Fighter 3rd Strike character and sweep out of it. Looked cool 😎.
+- ✨ August 30th - Tongue Tied with Two Swallows Kitchen and Black Garter Revue at Box Tie Studios, Portland, ME
+    - Ran an intro to burlesque station. We played with boas, strutted around, talked about parallels between "scene" head space and character head space.
+    - Debuted an act! Head Like A Hole is very fun, even more fun when it's slowed down.
+- ✨ June 14th - Rhinestones and Rainbows with Black Garter Revue at Hot Hill Tavern
+    - Debuted Microfreaking Out. Solid show, HHT is always fun.
 - May 3rd - Mas Tease-ly Cantina Cabaret with A La Tarte at Hot Hill.
     - Helping with sound is fun! Once again A La Tarte is great.
+- ✨ April 19th - Burn Baby Burn with Black Garter Reveue at Hot Hill
+    - New act new act!
 - March 22nd - [Nerds Unzipped with A La Tarte](https://www.eventbrite.com/e/nerds-unzipped-a-pop-culture-burlesque-tickets-1261223426219) at Hot Hill Tavern.
     - I love working with A La Tarte. They're creative, kind, and put on a super fun show.
 - January 18th - Wild Winter Creatures Burlesque
     - Had fun! It was Seraphina Syren's birthday!
+
+
 ## 2024
 
 - December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
@@ -78,7 +85,7 @@ Black Garter Revue is putting on a show with Danny Jordan and Friends! We are ta
 
 ## Amelia Arsenic - Choke
 
-This was my first ever solo, and my most refined. Jenni the Vampiress is looking for a victim, and hoo boy does she find one.
+Jenni the Vampiress is looking for a victim, and hoo boy does she find one.
 
 ## Frankie Yankovic - Who Stole The Keeshka
 
@@ -99,3 +106,19 @@ KRAMPUS ACT! KRAMPUS ACT!
 ## Kidneytheives - Kushcloud
 
 An excuse to play with a green tulle scarf.
+
+## Madison Avenue - Don't Call Me Baby
+
+An act about quitting a terrible job. Also an excuse to throw a (broken, battery removed, 2010 era) laptop across a stage.
+
+## Chandler - Magnificent
+
+Sparkles doing Sparkles things; high fives, chair stands, big happy energy.
+
+## Rachel K Collier - Microfreaking Out
+
+You can't arm me, I'm not an explosive!
+
+## Allie Goertz - Head Like a Hole
+
+Swooshing around with power and getting stuck in a dress. Whoops, we'll get a better zipper next time.
