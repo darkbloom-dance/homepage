@@ -19,18 +19,13 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 I have something lining up for November, stay tuned 🥰
 
-<br />
-<br />
-<br />
-<br />
-
 # Past Shows
 
 ✨ = Solo act debut
 ## 2025
 
 - ✨✨ October 31st - Nightmare on Starr St II : The Haunting Of Hot Hill w/ Black Garter Revue, Thomaston, ME
-    - Premeired two acts
+    - Premiered two acts
     - Everyond killed it, what talent!
     - Apologies to our tech wizards, Garter Loop is getting fixed asap. Thanks for the patience, thanks for being grounded.
 - ✨ August 30th - Tongue Tied with Two Swallows Kitchen and Black Garter Revue at Box Tie Studios, Portland, ME
@@ -50,7 +45,7 @@ I have something lining up for November, stay tuned 🥰
 
 ## 2024
 
-- December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thoamston, ME
+- December 31st - Welcome To The Black Light District at Hot Hill Tavern in Thomaston, ME
     - Everyone was so neon sparkles, it was so awesome!
 - ✨December 21st - How To Get On The Naughty List at Hot Hill Tavern in Thomaston, ME
     - Solid show, Hot Hill is lovely.
