@@ -17,11 +17,7 @@ If you'd like to create something, let's chat! [Instagram](https://www.instagram
 
 # Upcoming Shows
 
-## Nightmare on Starr St II : The Haunting Of Hot Hill
-
-![A spooky version of Hot Hill Tavern, complete with fishnet-wearing ghosts, cool jack o lanterns, a witch taking fligh, and a big spider](calendar/haunting-of-hot-hill.jpeg)
-We getting spooky with it. Super hyped for this one; it's a bit later than usual because there's Halloween candy to hand out!
-
+I have something lining up for November, stay tuned 🥰
 
 <br />
 <br />
@@ -33,6 +29,10 @@ We getting spooky with it. Super hyped for this one; it's a bit later than usual
 ✨ = Solo act debut
 ## 2025
 
+- ✨✨ October 31st - Nightmare on Starr St II : The Haunting Of Hot Hill w/ Black Garter Revue, Thomaston, ME
+    - Premeired two acts
+    - Everyond killed it, what talent!
+    - Apologies to our tech wizards, Garter Loop is getting fixed asap. Thanks for the patience, thanks for being grounded.
 - ✨ August 30th - Tongue Tied with Two Swallows Kitchen and Black Garter Revue at Box Tie Studios, Portland, ME
     - Ran an intro to burlesque station. We played with boas, strutted around, talked about parallels between "scene" head space and character head space.
     - Debuted an act! Head Like A Hole is very fun, even more fun when it's slowed down.
